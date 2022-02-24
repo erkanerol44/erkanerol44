@@ -1,0 +1,3 @@
+Bireysel dosyalarım burada yer alacak...
+
+Kodlarımın herhangi bir hakkı felan yoktur  :)
